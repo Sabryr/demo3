@@ -7,7 +7,7 @@
 - **1** medium onion, diced
 - **2** garlic cloves, minced
 - **1 teaspoon** fresh thyme leaves (or ½ teaspoon dried thyme)
-- **16  teaspoons** of salt
+- **12  teaspoons** of salt
 
 ## Instructions
 
