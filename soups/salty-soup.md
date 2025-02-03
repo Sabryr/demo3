@@ -9,7 +9,8 @@
 - **1 teaspoon** fresh thyme leaves (or ½ teaspoon dried thyme)
 - **6  teaspoons** of salt
 
-## instructions
+## Instructions
 
 - Mix and boil
+- 
     
